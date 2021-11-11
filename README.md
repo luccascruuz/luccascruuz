@@ -1,4 +1,4 @@
-### Hi👋, I'm Luccas Ribeiro
+### Hi👋🏿, I'm Luccas Ribeiro
 
 - 🔭 I’m currently working on [QueroDelivery](https://querodelivery.com)
 - 💬 Ask me about: 
